@@ -1,4 +1,5 @@
 - [Making potassium hydroxide from wood](https://youtu.be/PxRyVhNFLH8)
 - [Potassium Hydroxide and Carbonate From Wood Ash](https://youtu.be/8mIcoFLZ-rU)
 - [How to Make Potash aka Caustic Potash from Wood Ash](https://youtu.be/kvSex-DCzrk)
+- [Making Lye Water (Potassium hydroxide KOH) ](https://youtu.be/aLtp7Nfpt1w)
 - [
